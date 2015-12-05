@@ -1,2 +1,2 @@
 # sun
-Life is from the light
+Life is from the light,good.
